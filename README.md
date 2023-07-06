@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **987kundanrai@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/jPZ37](https://shorturl.at/jPZ37)
+- 📄 Know about my experiences [My cv](https://shorturl.at/jPZ37)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
